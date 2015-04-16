@@ -1,0 +1,2 @@
+# uyghurban
+uyghurche
